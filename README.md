@@ -9,5 +9,6 @@
 
 ## 🌎 Onde me encontrar
 - 💼 LinkedIn: [Ronaldo Macedo](https://www.linkedin.com/in/macedoronaldo/)
+- 📊 E-mail: macedo41701@gmail.com
 
 ✨ *Seja bem-vindo ao meu perfil!* 🚀
